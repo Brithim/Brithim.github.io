@@ -1,2 +1,0 @@
-# Brithim.github.io
-Kekekekekekkekekeekekekekekekekek
